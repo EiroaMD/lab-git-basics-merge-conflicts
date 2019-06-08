@@ -1,2 +1,2 @@
 My name is Dani.
-I am from Spain.
+I am from the Canary Islands.
